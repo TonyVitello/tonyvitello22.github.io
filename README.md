@@ -1,0 +1,7 @@
+- [https://www.quora.com/profile/Tony-Vitello-4](https://www.quora.com/profile/Tony-Vitello-4)
+- [https://medium.com/@TonyVitello22](https://medium.com/@TonyVitello22)
+- [https://www.reddit.com/user/TonyVitello22/](https://www.reddit.com/user/TonyVitello22/)
+- [https://x.com/TonyVitello22](https://x.com/TonyVitello22)
+- [https://tonyvitello22.github.io](https://tonyvitello22.github.io)
+- [https://www.youtube.com/@TonyVitello22](https://www.youtube.com/@TonyVitello22)
+- 
